@@ -6,6 +6,13 @@ Here Is the website
 
 https://pubfilm.one/
 
+Anime (This might not work fully)
+
+just click on the anime you want and change the server if it doesnt work
+
+https://www.animelandtv.me/
+
 My website 
 
 https://geovani.carrd.co/
+
