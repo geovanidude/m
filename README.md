@@ -4,15 +4,15 @@ Pick any movie or show you want, once you click on it click on the 3 lines then 
 
 Here Is the website
 
-https://pubfilm.one/
+[Movies](https://pubfilm.one/)
 
 Anime (This might not work fully)
 
 just click on the anime you want and change the server if it doesnt work
 
-https://www.animelandtv.me/
+[Anime](https://www.animelandtv.me/)
 
 My website 
 
-https://geovani.carrd.co/
+[Geovani's Games](https://geovaniw.carrd.co/)
 
